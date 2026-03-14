@@ -4,7 +4,7 @@
 
 ㅤ <a href='https://postimg.cc/hJw7dcXj' target='_blank'><img src='https://i.postimg.cc/hJw7dcXj/vpik0PMat-Rp-BZ-Otgk2b-Rm-JZqi-Ti-LVMwa-Ii-YQd69530Ha-WS4f-Pjemhd-Sn0-Z2SCHshu-HDSro-Cp-Yo44kb-b9WAy.jpg' border='0' alt='vpik0PMat-Rp-BZ-Otgk2b-Rm-JZqi-Ti-LVMwa-Ii-YQd69530Ha-WS4f-Pjemhd-Sn0-Z2SCHshu-HDSro-Cp-Yo44kb-b9WAy'></a> ㅤㅤ꒱ ㅤ﹫ 𝑟enchㅤor ㅤ𝑟enyaㅤ![](https://pix.crd.co/assets/images/gallery21/12bf090b.png?v=1466ccea)ㅤ sheher
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ8teen! ㅤ bruce  ㅤ ♡  ㅤ leon irl 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl 
 
 
 wip .
