@@ -4,19 +4,19 @@
 
 ㅤ <a href='https://postimg.cc/QF8gwCmX' target='_blank'><img src='https://i.postimg.cc/QF8gwCmX/A93848C1-C3E0-4679-933D-00591F4AFB7A.png' border='0' alt='A93848C1-C3E0-4679-933D-00591F4AFB7A'></a> ꒱ ㅤ﹫ 𝑟enchㅤor ㅤ𝑟enyaㅤ![](https://pix.crd.co/assets/images/gallery21/12bf090b.png?v=1466ccea)ㅤ sheher
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝑚y interests : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
 
 ㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
 
-ㅤㅤㅤㅤmickey 17, heated rivalry, the pitt, dispatch
+ㅤㅤㅤㅤㅤㅤmickey 17, heated rivalry, the pitt, dispatch
 
-ㅤㅤㅤㅤpeacemaker, weak hero, brave citizen
+ㅤㅤㅤㅤㅤㅤpeacemaker, weak hero, brave citizen
 
-ㅤㅤㅤㅤhsr ( uid 720594539 ), zzz ( uid 1504596039 )
+ㅤㅤㅤㅤㅤㅤhsr ( uid 720594539 ), zzz ( uid 1504596039 )
 
-ㅤㅤㅤㅤdevil may cry, silent hill, cookie run, the boys
+ㅤㅤㅤㅤㅤㅤdevil may cry, silent hill, cookie run, the boys
 
-ㅤㅤㅤㅤgen v, the hundred line, alien stage, 19 days.
+ㅤㅤㅤㅤㅤㅤgen v, the hundred line, alien stage, 19 days.
