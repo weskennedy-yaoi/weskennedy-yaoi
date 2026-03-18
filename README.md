@@ -8,6 +8,20 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ my interestsㅤ& ㅤanonㅤ  <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/ca3bfce245df733f7f3ad1a75aa3d254/f1edb2659908d932-cb/s250x400/9f98b5ba857577bb1ed04de9998940998e0b9651.webp)ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=lightgrey&label=MEOW&style=for-the-badge)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ my interestsㅤ:ㅤ  <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
+
+ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v, mickey 17,
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤheated rivalry, the pitt, 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdispatch, peacemaker, weak hero, brave citizen, 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, zzz, devil may cry, 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsilent hill, cookie run, squid game, the boys, gen v, 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthe hundred line, alien stage, 19 days
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ![](https://64.media.tumblr.com/ca3bfce245df733f7f3ad1a75aa3d254/f1edb2659908d932-cb/s250x400/9f98b5ba857577bb1ed04de9998940998e0b9651.webp)ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=lightgrey&label=MEOW&style=for-the-badge)
